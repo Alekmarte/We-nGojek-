@@ -1,2 +1,2 @@
 # We-nGojek-
-Kecamatan Gangga lombok jtara
+Kecamatan Gangga lombok Utara 
